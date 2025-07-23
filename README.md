@@ -1,0 +1,1 @@
+# Aime-Rick.github.io
